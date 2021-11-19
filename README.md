@@ -15,5 +15,3 @@ HPG produces thousands of innovative products across seven different production 
 When partnering with HPG, you can trust you’ll receive superior quality products, excellent customer service, and all the tools you need to leave a lasting impression.
 
 Our brands: Hub, Beacon, Best, Debco, BCG Creations, Origaudio, Handstands, HPG Exclusive, Batch & Bodega, and Mixie.
-
-- **[HPG Careers](https://hpgbrands.com/careers/?search__popularMinusfilters=US__Pricing__Available&)** 
