@@ -4,7 +4,7 @@ If you're interested in working for [HPG](http://www.hpgbrands.com/careers) or l
 
 ## Open Positions
 
-- **[ERP and Web Developer - NetSuite] COMING SOON...
+- **[ERP and Web Developer - NetSuite](http://www.hpgbrands.com/carreers)** - COMING SOON...
 
 ## About HPG
 
