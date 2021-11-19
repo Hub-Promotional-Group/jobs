@@ -4,7 +4,10 @@ If you're interested in working for [HPG](http://www.hpgbrands.com/careers) or l
 
 ## Open Positions
 
-- **[ERP and Web Developer - NetSuite](https://recruiting.paylocity.com/Recruiting/Jobs/Details/663809)** 
+- **[ERP and Web Developer - NetSuite - HPG](https://recruiting.paylocity.com/Recruiting/Jobs/Details/663809)** - Based out of Braintree, MA or remote
+- **[Video Content Coordinator - HandStands](https://recruiting.paylocity.com/Recruiting/Jobs/Details/721130)** - Based out of Danville, CA
+- **[Customer Service Representative - Beacon](https://hpgbrands.com/careers-beacon/)** - Based out of New Ulm, MN
+-  **[Credit Collections Analyst - Hub](https://hpgbrands.com/careers-hub/)** - Based out of Braintree, MA
 
 ## About HPG
 
