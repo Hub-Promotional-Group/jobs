@@ -4,7 +4,9 @@ If you're interested in working for [HPG](http://www.hpgbrands.com/careers) or l
 
 ## Open Positions
 
-- **[ERP and Web Developer - NetSuite](https://recruiting.paylocity.com/Recruiting/Jobs/Details/663809)** - 
+- **[ERP and Web Developer - NetSuite](https://recruiting.paylocity.com/Recruiting/Jobs/Details/663809)** 
+
+- **[HPG Careers](https://hpgbrands.com/careers/?search__popularMinusfilters=US__Pricing__Available&)** 
 
 ## About HPG
 
